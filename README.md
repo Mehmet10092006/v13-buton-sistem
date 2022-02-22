@@ -2,7 +2,7 @@
 
 # 20 starda paylaşıcam 😊
 
-![alt text](https://cdn.discordapp.com/attachments/945006002535809147/945728733447344198/unknown.png)
+![alt text](https://cdn.discordapp.com/attachments/945006002535809147/945729541891039232/unknown.png)
 ![alt text](https://cdn.discordapp.com/attachments/945006002535809147/945728813558546462/unknown.png)
 ![alt text](https://cdn.discordapp.com/attachments/945006002535809147/945728890222051358/unknown.png)
 ![alt text](https://cdn.discordapp.com/attachments/945006002535809147/945728986707812432/unknown.png)
